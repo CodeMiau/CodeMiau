@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CodeMiau
-- 👀 I’m interested...
+- 👀 I’m interested all about swimming
 - 🌱 I’m currently (always) learning 
 - 💞️ I’m looking to collaborate on Pied Piper
 - 📫 How to reach me... send me a DM
