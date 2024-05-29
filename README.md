@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @CodeMiau
-- 👀 I’m interested in all about swimming
-- 🌱 I’m currently (always) learning 
+- 👀 I’m interested in all about swimming and jewelry
+- 🌱 I’m currently (always) learning.
 - 💞️ I’m looking to collaborate on Pied Piper
-- 📫 How to reach me... send me a DM
+- 📫 How to reach me... in my house
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I have a beautiful cat
 
